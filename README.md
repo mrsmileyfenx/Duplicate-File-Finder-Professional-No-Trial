@@ -1,0 +1,1 @@
+# Duplicate-File-Finder-Professional-No-Trial
